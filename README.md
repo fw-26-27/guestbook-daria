@@ -1,1 +1,1 @@
-*Replace with your own content, instructions in `Exercise.md`*
+Hello, my name is Darja! I have a shrine dedicated to my dead hamster!
